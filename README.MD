@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img width="200" height="134" src="https://files.catbox.moe/qqxmaq.png">
+  <img width="400" height="340" src="https://files.catbox.moe/qqxmaq.png">
 </p>
 
 </p> <p align="center">picture is me, haters will say its fake
