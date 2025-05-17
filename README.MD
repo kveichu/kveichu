@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img width="2000" height="1134" src="https://files.catbox.moe/qqxmaq.png">
+  <src="https://files.catbox.moe/qqxmaq.png">
 </p> <p align="center">picture is me, haters will say its fake
 
 </p> <p align="center">c + h any im so friendly trust and im mr. worldwide who doesnr like me?!!?!
