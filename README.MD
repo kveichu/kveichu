@@ -1,5 +1,5 @@
 
-<p align="center"> <src="https://files.catbox.moe/qqxmaq.png">
+<p align="center"> src="https://files.catbox.moe/qqxmaq.png">
 </p>
 
 </p> <p align="center">picture is me, haters will say its fake
